@@ -47,7 +47,3 @@
 ## 🌐 Find Me Online
 - GitHub: [krishnayeswanth99](https://github.com/krishnayeswanth99)  
 - LinkedIn: [Krishna Yeswanth Peddi](https://www.linkedin.com/in/krishna-yeswanth-peddi)  
-- Email: **kp3487@nyu.edu**  
-
----
-⭐️ From [krishnayeswanth99](https://github.com/krishnayeswanth99)
